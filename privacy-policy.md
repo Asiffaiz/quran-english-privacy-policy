@@ -5,7 +5,7 @@ We takes your privacy seriously. To better protect your privacy we provide this 
 
 ## Collection of Routine Information
 
-This  Quran $ English track basic information about their users. This information includes, but is not limited to, IP addresses,  Quran $ English details, timestamps and referring pages. None of this information can personally identify specific user to this Quran $ English. The information is tracked for routine administration and maintenance purposes.
+This  Quran & English Translation track basic information about their users. This information includes, but is not limited to, IP addresses,  Quran & English Translation details, timestamps and referring pages. None of this information can personally identify specific user to this Quran & English Translation. The information is tracked for routine administration and maintenance purposes.
 
 
 
@@ -21,7 +21,7 @@ The security of your personal information is important to us but remember that n
 
 This Privacy Policy is effective as of now and will remain in effect except with respect to any changes in its provisions in the future, which will be in effect immediately after being posted on this page.
 
-We reserve the right to update or change our Privacy Policy at any time and you should check this Privacy Policy periodically. If we make any material changes to this Privacy Policy, we will notify you either through the email address you have provided us, or by placing a prominent notice on our  Quran $ English.
+We reserve the right to update or change our Privacy Policy at any time and you should check this Privacy Policy periodically. If we make any material changes to this Privacy Policy, we will notify you either through the email address you have provided us, or by placing a prominent notice on our  Quran & English Translation.
 
 
 ## Contact Information
